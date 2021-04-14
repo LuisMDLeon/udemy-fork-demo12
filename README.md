@@ -8,3 +8,4 @@ Toda la información aquí utilizada sale de Wikipedia y Marvel.com
 modificaciones
 
 Archivo modificado
+1
